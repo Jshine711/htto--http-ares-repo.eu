@@ -1,1 +1,1 @@
-# htto://noobsandnerds.com
+# https://noobsandnerds.com
